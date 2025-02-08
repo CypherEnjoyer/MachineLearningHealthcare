@@ -1,0 +1,1 @@
+It sounds like you're sharing something about your workspace! What would you like to discuss or share about it? Are you looking for tips on organization, productivity, or something else?

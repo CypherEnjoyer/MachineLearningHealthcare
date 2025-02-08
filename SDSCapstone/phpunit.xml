@@ -1,0 +1,1 @@
+It sounds like you might want to share details about your workspace or discuss something related to it. What would you like to talk about?
